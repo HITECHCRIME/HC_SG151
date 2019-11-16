@@ -32,6 +32,10 @@ sewing stitches from all the heartbreak
 
 all the sights are behind a veil
 
+gonna say it now
+hindsight
+saying no
+saying no
 
 
 let me go now
