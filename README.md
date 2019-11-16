@@ -16,9 +16,7 @@ NINETY8
 ## Lyrics
 
 ```
-
 not alone
-
 
 wanna say it all
 i don't know
