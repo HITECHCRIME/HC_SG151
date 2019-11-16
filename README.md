@@ -30,6 +30,9 @@ hey so
 what don't you find some leverage
 sewing stitches from all the heartbreak
 
+all the sights are behind a veil
+
+
 
 let me go now
 let me go now
