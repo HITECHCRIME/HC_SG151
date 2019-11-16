@@ -17,10 +17,19 @@ NINETY8
 
 ```
 
+not alone
+
+
 wanna say it all
 i don't know
 what the fuck you want with me
 i'm not a fucking animal
+
+hey so
+
+what don't you find some leverage
+sewing stitches from all the heartbreak
+
 
 let me go now
 let me go now
