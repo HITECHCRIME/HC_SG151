@@ -25,6 +25,8 @@ i don't know
 what the fuck you want with me
 i'm not a fucking animal
 
+face the facts
+
 hey so
 
 girl
