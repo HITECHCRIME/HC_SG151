@@ -22,6 +22,10 @@ i don't know
 what the fuck you want with me
 i'm not a fucking animal
 
+let me go now
+let me go now
+let me really go now
+
 ```
 
 ## Lyrics Testing Ground
