@@ -11,7 +11,7 @@ NINETY8
 
 **Title:**  / **Featuring:** 
 
-**Production:**  / **Lyrics:** 
+**Production:** NINETY8 / **Lyrics:** 
 
 ## Lyrics
 
