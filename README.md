@@ -16,7 +16,10 @@ NINETY8
 ## Lyrics
 
 ```
-
+wanna say it all
+i don't know
+what the fuck you want with me
+i'm not a fucking animal
 
 ```
 
