@@ -43,9 +43,15 @@ let me go now
 let me go now
 let me really go now
 
+
+
 let it all out
 let it all out
 right or wrong
+
+i don't really fucking know man
+this seems like 
+aye
 
 ```
 
