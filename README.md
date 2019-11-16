@@ -11,7 +11,7 @@ NINETY8
 
 **Title:**  / **Featuring:** MOTHNODE
 
-**Production:** NINETY8 / **Lyrics:** 
+**Production:** NINETY8 / **Lyrics:** MOTHNODE
 
 ## Lyrics
 
